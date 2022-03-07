@@ -1,1 +1,0 @@
-# parthri.intro
